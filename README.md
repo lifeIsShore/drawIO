@@ -1,4 +1,4 @@
-öl
+köklöl
 lölö
 löllööl
 lölö
